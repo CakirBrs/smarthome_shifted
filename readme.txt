@@ -1,0 +1,1 @@
+Akıllı ev ödevi
